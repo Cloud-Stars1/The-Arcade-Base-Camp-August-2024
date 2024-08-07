@@ -1,1 +1,1 @@
-# The-Arcade-Base-Camp-August-2024
+# The Arcade Base Camp August 2024
